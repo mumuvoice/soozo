@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @soozo
+- 👀 I’m interested in music
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on myself
+- 📫 How to reach me @lifeoncloud
